@@ -1,2 +1,0 @@
-# curtainvirusuninstaller
-dokkiriyou
